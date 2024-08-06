@@ -8,8 +8,8 @@ meu nome é beatriz fabian
 
 ### voce entrar em contato comigo 📫
 
-
 0000112150453XSP@al.educacao.sp.gov.br
 
+bia_300908_
 
-![]()[https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif]
+![](https://media1.tenor.com/m/uO37-aKreAEAAAAC/kakashi-naruto.gif)
